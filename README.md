@@ -1,2 +1,1 @@
-## Hi there 👋
-# fgjspfgjsg
+## 👨🏻‍💻 Introducing myself
